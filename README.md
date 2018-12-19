@@ -9,6 +9,4 @@ Very eager to be a programer!
 
 Just sdudying how lovely git hub is!
 
-*************************************
-
-ghfjhgjkhjkll
+************************************
